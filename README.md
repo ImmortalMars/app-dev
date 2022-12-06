@@ -57,6 +57,21 @@ https://user-images.githubusercontent.com/103486091/205785044-fb3f5b67-55fd-4b1e
 [The Mummy](https://www.imdb.com/title/tt0120616/?ref_=nv_sr_srsg_0)
 
 
+4. **Journey to the Center of the Earth**
+
+> On a quest to find out what happened to his missing brother, a scientist, his nephew and their mountain guide discover a fantastic and dangerous lost world in the center of the earth.
+
+![p175933_p_v8_af](https://user-images.githubusercontent.com/103486091/205790515-63befb4b-1317-43f9-a552-d209d8ebb3cc.jpg)
+
+[Journey to the Center of the Earth](https://www.imdb.com/title/tt0373051/?ref_=nv_sr_srsg_0)
+
+
+
+
+
+
+
+
 
 
 
